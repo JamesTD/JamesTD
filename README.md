@@ -1,1 +1,1 @@
-## Welcome to my personal GitHub! :tada:
+## Welcome to my personal GitHub! :tada: :sparkles:
